@@ -5,4 +5,4 @@
 ## Dosen Pengampu: Al Muhdil Karim, S. IP., M.Hum
 
 # Pendahuluan
-
+Sejarah inovasi teknologi modern muncul secara tiba-tiba, melainkan lahir dari kejamnya kompetisi. Pergeseran peradaban dari inovasi yang dikontrol ketat oleh negara menjadi invoasi yang didikte oleh pasar bebas berutang besar pada dua pemikir utama: Adam Smith dan Schumpeter. Mereka memvalidasi bahwa "Tangan Tak Terlihat" ()
